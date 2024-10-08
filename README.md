@@ -28,7 +28,5 @@
 ![슬라이드0027](https://github.com/user-attachments/assets/62a79f60-d964-40ea-9ca7-d90afc294a2d)
 ![슬라이드0028](https://github.com/user-attachments/assets/c9ca3ad9-0df3-4970-94ac-bf8b2fe66a2b)
 ![슬라이드0029](https://github.com/user-attachments/assets/fbf825bf-b423-4586-8185-9a92ba17d1b2)
-![슬라이드0030](https://github.com/user-attachments/assets/d61e543b-cbc8-441d-81e4-a36827033118)
-![슬라이드0031](https://github.com/user-attachments/assets/3f9002cd-9961-4796-913c-fb34749d1b11)
 ![슬라이드0032](https://github.com/user-attachments/assets/c8ef90ba-9cd1-4baa-9471-7bcc04cc09a1)
 ![슬라이드0033](https://github.com/user-attachments/assets/0802f547-2cf2-4cc8-99d6-8559a9f7c2b1)
